@@ -1,7 +1,7 @@
 ## Portuguese Language Learning Resources
 
 ## Movies
-1. [Cidade de Deus (Filme Completo)](https://www.youtube.com/watch?v=2zxkx05zFU8)
+1. [Cidade de Deus (Filme Completo)](https://www.youtube.com/watch?v=2zxkx05zFU8) (Best Movie Ever)
 2. [Tropa de Elite (filme completo)](https://www.youtube.com/watch?v=rk2rYXsqcbA)
 
 ## Music
